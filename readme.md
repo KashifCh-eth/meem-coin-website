@@ -5,7 +5,7 @@
 
 . 💥➡ Check my experince on images Folder  
 
-・Contact us from Telegram: https://t.me/kashi_eth
+・Let's discuss contact us: https://t.me/kashi_eth
 
 # !! FEATURES !!
 ✅ Special Arrangements At Your Request
@@ -20,7 +20,8 @@
 
 ✅ Low prices
 
-DM me from [Telegram](https://meemcoin-website.netlify.app/) :  if you are interested.🤝 and want lanuch your coin successfully 
+
+Let's discuss your idea. [Telegram](https://meemcoin-website.netlify.app/) :  if you are interested.🤝 and want lanuch your coin successfully 
 
  Meme Themes
 
