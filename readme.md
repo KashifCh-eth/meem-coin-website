@@ -21,9 +21,9 @@
 ✅ Low prices
 
 
-Let's discuss your idea. [Telegram](https://meemcoin-website.netlify.app/) :  if you are interested.🤝 and want lanuch your coin successfully 
+Let's discuss your idea. [Telegram](https://meemcoin-website.netlify.app/) :  if you are interested.🤝 and want to lanuch your coin successfully 
 
- Meme Themes
+Meme Themes
 
 ![alt text](https://github.com/KashifCh-eth/meem-coin-website-or-landing-page/blob/09b31312befba620c6159c5c533b5aeb3ea63c88/images/1.PNG)
 ![alt text](https://github.com/KashifCh-eth/meem-coin-website-or-landing-page/blob/main/images/2.PNG)
