@@ -5,7 +5,7 @@
 
 . 💥➡ Check my experince on images Folder  
 
-・Contact us from Telegram: https://t.me/KashifCheth ✅
+・Contact us from Telegram: https://t.me/kashi_eth✅
 
 # !! FEATURES !!
 ✅ Special Arrangements At Your Request
