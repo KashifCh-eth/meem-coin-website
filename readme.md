@@ -3,7 +3,7 @@
 
 ・I can create a website for you any way you want. Token, Coin, Meme Token etc. 👌
 
-. 💥➡ Check my experince on images Folder  
+. 💥➡ Check out my recent websites below.
 
 ・Let's discuss contact us: https://t.me/kashi_eth
 
